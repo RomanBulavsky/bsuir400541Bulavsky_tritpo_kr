@@ -1,0 +1,2 @@
+# bsuir400541Bulavsky_tritpo_kr
+TRiTPO
